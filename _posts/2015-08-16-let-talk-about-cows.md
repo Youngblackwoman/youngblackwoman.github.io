@@ -1,0 +1,61 @@
+---
+layout: post
+title: LET'S TALK ABOUT COWS...
+---
+ Dear Diary, <span
+style="font-family: 'Helvetica Neue Light', HelveticaNeue-Light, helvetica, arial, sans-serif;">
+</span> Do not be decieved by the title of this post, it has nothing to
+do with my absence in recent times. <span
+style="font-family: 'Helvetica Neue Light', HelveticaNeue-Light, helvetica, arial, sans-serif;">No,
+I haven't joined the league of extraordinary traders who deal in cows
+and their produce and no, I have no intention of doing so in the nearest
+future.</span> <span
+style="font-family: 'Helvetica Neue Light', HelveticaNeue-Light, helvetica, arial, sans-serif;">
+</span> <span
+style="font-family: 'Helvetica Neue Light', HelveticaNeue-Light, helvetica, arial, sans-serif;">While
+surfing the net, I came across a post by \*\*Mike Hosking Breakfast.\*\*
+I found it quite interesting and in my usual generous manner, I've
+decided to share it with you. It's a series of pictures that uses two
+cows to describe the world economy and the economy of different
+countries. As simple as it looks, it carries a lot of information in it.
+There's a bit of humour attached to it, enjoy!</span> <span
+style="font-family: 'Helvetica Neue Light', HelveticaNeue-Light, helvetica, arial, sans-serif;">
+</span> <span
+style="font-family: 'Helvetica Neue Light', HelveticaNeue-Light, helvetica, arial, sans-serif;"></span>
+\[!\[\](https://lh3.googleusercontent.com/-rHB35XQ9AmQ/VdEJn5-zJDI/AAAAAAAABrw/vTygVdWIO74/s640/blogger-image-1477413495.jpg)\](https://lh3.googleusercontent.com/-rHB35XQ9AmQ/VdEJn5-zJDI/AAAAAAAABrw/vTygVdWIO74/s640/blogger-image-1477413495.jpg)
+<span
+style="font-family: 'Helvetica Neue Light', HelveticaNeue-Light, helvetica, arial, sans-serif;"></span>
+\[!\[\](https://lh3.googleusercontent.com/-TC98yTll0a4/VdD5WVrNqhI/AAAAAAAABqs/a2AjEV3p6f8/s640/blogger-image--844744296.jpg)\](https://lh3.googleusercontent.com/-TC98yTll0a4/VdD5WVrNqhI/AAAAAAAABqs/a2AjEV3p6f8/s640/blogger-image--844744296.jpg)
+\[!\[\](https://lh3.googleusercontent.com/-2bD5ZbSSWp0/VdEJwaQY0KI/AAAAAAAABr4/7K1exZxTLUo/s640/blogger-image--1208460848.jpg)\](https://lh3.googleusercontent.com/-2bD5ZbSSWp0/VdEJwaQY0KI/AAAAAAAABr4/7K1exZxTLUo/s640/blogger-image--1208460848.jpg)
+\[!\[\](https://lh3.googleusercontent.com/-nQfY1QJ52kE/VdEJd3szEpI/AAAAAAAABro/YIeBE8EI\_o0/s640/blogger-image-1259792111.jpg)\](https://lh3.googleusercontent.com/-nQfY1QJ52kE/VdEJd3szEpI/AAAAAAAABro/YIeBE8EI\_o0/s640/blogger-image-1259792111.jpg)
+\[!\[\](https://lh3.googleusercontent.com/-M5k7QtVFJNI/VdDyILCkddI/AAAAAAAABp8/PQQ9LSiDmFQ/s640/blogger-image-540453139.jpg)\](https://lh3.googleusercontent.com/-M5k7QtVFJNI/VdDyILCkddI/AAAAAAAABp8/PQQ9LSiDmFQ/s640/blogger-image-540453139.jpg)
+\[!\[\](https://lh3.googleusercontent.com/-ZImNj2WfyQw/VdEKEcrbRmI/AAAAAAAABsI/\_3-5KpefTVo/s640/blogger-image--1281169878.jpg)\](https://lh3.googleusercontent.com/-ZImNj2WfyQw/VdEKEcrbRmI/AAAAAAAABsI/\_3-5KpefTVo/s640/blogger-image--1281169878.jpg)
+\[!\[\](https://lh3.googleusercontent.com/-8vItqQNJkoU/VdEJNXquvKI/AAAAAAAABrY/c4j7RwAjEqQ/s640/blogger-image--239532116.jpg)\](https://lh3.googleusercontent.com/-8vItqQNJkoU/VdEJNXquvKI/AAAAAAAABrY/c4j7RwAjEqQ/s640/blogger-image--239532116.jpg)
+\[!\[\](https://lh3.googleusercontent.com/-Jcw9Bms1zNc/VdEJ5cfKp8I/AAAAAAAABsA/YBBUd9Ut5yg/s640/blogger-image--1490559563.jpg)\](https://lh3.googleusercontent.com/-Jcw9Bms1zNc/VdEJ5cfKp8I/AAAAAAAABsA/YBBUd9Ut5yg/s640/blogger-image--1490559563.jpg)
+<span
+style="font-family: 'Helvetica Neue Light', HelveticaNeue-Light, helvetica, arial, sans-serif;"></span>
+\[!\[\](https://lh3.googleusercontent.com/-zQGYJnr3MGE/VdD1bCdpNcI/AAAAAAAABqY/pWxJ5ctLAfw/s640/blogger-image--1302864503.jpg)\](https://lh3.googleusercontent.com/-zQGYJnr3MGE/VdD1bCdpNcI/AAAAAAAABqY/pWxJ5ctLAfw/s640/blogger-image--1302864503.jpg)
+<span
+style="font-family: 'Helvetica Neue Light', HelveticaNeue-Light, helvetica, arial, sans-serif;"></span>
+\[!\[\](https://lh3.googleusercontent.com/-u7o9rCfE\_\_0/VdEKRDlZ0jI/AAAAAAAABsQ/KZliNP8XroU/s640/blogger-image-1623738318.jpg)\](https://lh3.googleusercontent.com/-u7o9rCfE\_\_0/VdEKRDlZ0jI/AAAAAAAABsQ/KZliNP8XroU/s640/blogger-image-1623738318.jpg)
+<span
+style="font-family: 'Helvetica Neue Light', HelveticaNeue-Light, helvetica, arial, sans-serif;"></span>
+\[!\[\](https://lh3.googleusercontent.com/-AtWYaNHi5v4/VdDyqNxb0DI/AAAAAAAABqE/ryZ2Yb6DErY/s640/blogger-image-848193788.jpg)\](https://lh3.googleusercontent.com/-AtWYaNHi5v4/VdDyqNxb0DI/AAAAAAAABqE/ryZ2Yb6DErY/s640/blogger-image-848193788.jpg)
+<span
+style="font-family: 'Helvetica Neue Light', HelveticaNeue-Light, helvetica, arial, sans-serif;"></span>
+\[!\[\](https://lh3.googleusercontent.com/-4fr1OA3\_84s/VdEJT0Rj93I/AAAAAAAABrg/jttrEQWc-yo/s640/blogger-image--1252410117.jpg)\](https://lh3.googleusercontent.com/-4fr1OA3\_84s/VdEJT0Rj93I/AAAAAAAABrg/jttrEQWc-yo/s640/blogger-image--1252410117.jpg)
+\[!\[\](https://lh3.googleusercontent.com/-HiOIw5Q7ghM/VdD5ZhmzsKI/AAAAAAAABq0/RaJ-hrq-8BY/s640/blogger-image-1847009829.jpg)\](https://lh3.googleusercontent.com/-HiOIw5Q7ghM/VdD5ZhmzsKI/AAAAAAAABq0/RaJ-hrq-8BY/s640/blogger-image-1847009829.jpg)
+\[!\[\](https://lh3.googleusercontent.com/-XtukbzGNpdk/VdD5ShG0BpI/AAAAAAAABqk/jrzolir0zQo/s640/blogger-image-1049707793.jpg)\](https://lh3.googleusercontent.com/-XtukbzGNpdk/VdD5ShG0BpI/AAAAAAAABqk/jrzolir0zQo/s640/blogger-image-1049707793.jpg)
+\[!\[\](https://lh3.googleusercontent.com/-I\_0aIgU4hpU/VdD7EBNIMqI/AAAAAAAABrA/kNil5n8EkeY/s640/blogger-image-453172947.jpg)\](https://lh3.googleusercontent.com/-I\_0aIgU4hpU/VdD7EBNIMqI/AAAAAAAABrA/kNil5n8EkeY/s640/blogger-image-453172947.jpg)
+\[!\[\](https://lh3.googleusercontent.com/-ZDrlTiFqIIU/VdEJDSPKW7I/AAAAAAAABrQ/ug27xG8eSMY/s640/blogger-image--1265756850.jpg)\](https://lh3.googleusercontent.com/-ZDrlTiFqIIU/VdEJDSPKW7I/AAAAAAAABrQ/ug27xG8eSMY/s640/blogger-image--1265756850.jpg)
+\[!\[\](https://lh3.googleusercontent.com/-cgN4Y\_Luhu4/VdDx7gGZhdI/AAAAAAAABp0/TbZq-lom710/s640/blogger-image-1808784907.jpg)\](https://lh3.googleusercontent.com/-cgN4Y\_Luhu4/VdDx7gGZhdI/AAAAAAAABp0/TbZq-lom710/s640/blogger-image-1808784907.jpg)
+There you have it ladies et gents, the maximal effect of two cows. What
+country definition do you like best? I can't find one for the Nigerian
+Corporation, it'll be nice to describe our corporation using the famous
+cows. Any ideas? Please share, it would be fun :) <span
+style="font-family: 'Helvetica Neue Light', HelveticaNeue-Light, helvetica, arial, sans-serif;">
+</span> <span
+style="font-family: 'Helvetica Neue Light', HelveticaNeue-Light, helvetica, arial, sans-serif;">
+</span> <span
+style="font-family: 'Helvetica Neue Light', HelveticaNeue-Light, helvetica, arial, sans-serif;">Photo
+credit: Facebook</span>
