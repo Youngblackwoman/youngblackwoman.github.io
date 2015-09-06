@@ -1,5 +1,5 @@
 # Build settings
-markdown: redcarpet
+markdown: kramdown
 highlighter: pygments
 gems:
   - jemoji
@@ -9,7 +9,7 @@ title: "The Diary of a Young Black Woman"
 description: > # this means to ignore newlines until "email:"
    Live, learn, love
 
-email: a-mail@mail.mail
+email: youngblackwoman@gmail.com
 #blog logo
 logo: "/assets/images/my_logo.jpg"
 # blog cover
@@ -21,18 +21,18 @@ author_image: "/assets/images/author.jpg"
 
 paginate:	5
 
-url: "http://myblog.***.***" # the base hostname & protocol for your site
+url: "/" # the base hostname & protocol for your site
 baseurl: ""
 #used to display twitter cards
-twitter_handle: '@dirkfabisch'
+twitter_handle: '@yungblackwoman'
 
 #fill in disqus shortname to use disqus
-#disqus: disqus-shortname
+disqus: youngblackwoman
 
 # social icons and sharing options
 social:
   - icon:	twitter
-    url:	https://twitter.com/dirkfabisch
+    url:	https://twitter.com/yungblackwoman
     desc: Follow me on twitter
     share_url: http://twitter.com/share
     share_title: ?text=
@@ -45,9 +45,9 @@ social:
 #    share_title: ?t=
 #    share_link: "&amp;u="
 
-  - icon:	github
-    url:	https://github.com/dirkfabisch
-    desc:	Fork me on github
+  - icon:	instagram
+    url:	https://instagram.com/yungblackwoman
+    desc:	Follow me on Instagram
     share_url:
     share_title:
     share_link:
