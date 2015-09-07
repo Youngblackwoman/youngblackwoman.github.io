@@ -1,0 +1,27 @@
+---
+layout: page
+title: All Posts by Tags
+permalink: /tags/
+---
+
+
+
+{% for tag in site.tags %}
+  <div class="medium-6 large-3 columns list-view-all">
+
+  {% assign currentTag = tag | first %}
+
+    <h4>{{ currentTag | upcase}}</h4>
+
+    {% for post in site.posts %}
+      {% if post.tags contains currentTag %}
+      <ul class="posts">
+        <li>
+            <a href="{{ post.url }}">{{ post.title }}</a>
+        </li>
+      </ul>
+      {% endif %}
+    {% endfor %}
+
+  </div>
+{% endfor %}
