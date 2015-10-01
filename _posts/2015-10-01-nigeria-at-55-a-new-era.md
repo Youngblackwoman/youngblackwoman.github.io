@@ -1,6 +1,6 @@
 ---
 layout: post
-title: NIGERIA AT 55: A NEW ERA
+title: NIGERIA AT 55 A NEW ERA
 date: '2015-10-01'
 author: Young Black Woman
 tags: Independence day
@@ -10,8 +10,8 @@ image: assets/article_images/nigeriaat53.jpg
 Dear Diary,
 
 *”Buhari is here,
-   Change is here,
-   There is no excuse…”*
+  Change is here,
+  There is no excuse…”*
 
 That was the mantra around town yesterday as we prepared to celebrate our dear country, Nigeria at 55. People have always found confounding; my independence posts over the years. My optimism and hope for a country that leaves little to be desired, baffles them. Like I always say, there is no other place I can call home.
 
@@ -37,4 +37,5 @@ Nigeria will be great.
 
 **Happy Independence Day.**
 
-A NEW ERA: as a way of celebrating our independence anniversary this year, yours truly decided to unveil the new look of the diary. So many new things here: the about page, the cover images, the comment section and a host of other cool features. all you have to do is keep clicking and sharing with others. Do share your views with me on Nigeria at 55 in the comment section, i would love to discuss with you. Also, tell me what you think about the blog makeover :).
+
+**A NEW ERA**: as a way of celebrating our independence anniversary this year, yours truly decided to unveil the new look of the diary. So many new things here: the about page, the cover images, the comment section and a host of other cool features. all you have to do is keep clicking and sharing with others. Do share your views with me on Nigeria at 55 in the comment section, i would love to discuss with you. Also, tell me what you think about the blog makeover :).
