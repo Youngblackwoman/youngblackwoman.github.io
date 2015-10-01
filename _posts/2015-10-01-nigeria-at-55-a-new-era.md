@@ -4,7 +4,7 @@ title: 'NIGERIA AT 55: A NEW ERA'
 date: '2015-10-01'
 author: Young Black Woman
 tags: Independence_day
-image: /assets/article_images/Nigeria-army1.jpg
+image: /assets/article_images/MODEL-FLYING-NIGERIAN-FLAG.jpg
 ---
 
 Dear Diary,
@@ -29,7 +29,7 @@ Just like technology, insecurity in our dear nation continues to evolve every ye
 
 There are many other challenges that we face such as lack of social infrastructures, power, bad roads, poverty amongst others. These problems are intertwined and solving just one of them would go a long way in resolving the others. I’m not here to paint a gloomy picture of Nigeria and make you sad on this beautiful day. It’s our independence anniversary and if you think there’s nothing worth celebrating, remember that some countries would give anything to be where we are today. By all means, go out and celebrate, well aware of the change you and I must be so Nigeria can move forward. We have been the butt of jokes in recent times being called names like; the Lilliputian of Africa, suffering and smiling, a nation in reverse, *money miss road*, to mention a few. Those names do not define our beliefs. Thank God for our undying sense of humor, it has been our source of comfort in these trying times.
 
-The President Mohammed Buhari led government, may just be the breathof fresh air that we need. On entering office, the old service chiefs and officers of the former government were shown the way out and new blood was instilled in government. Power has improved in recent times and there has been some obvious level of transparency among the government officials. The ~~surprisingly~~ low budget (70 million naira) for the independence celebration is also a sign of change. As we await the release of the ministerial list, 4 months after being sworn into office, we can only hope for the best. Slowly but surely, we’ll get there.
+The President Mohammed Buhari led government, may just be the breath of fresh air that we need. On entering office, the old service chiefs and officers of the former government were shown the way out and new blood was instilled in government. Power has improved in recent times and there has been some obvious level of transparency among the government officials. The ~~surprisingly~~ low budget (70 million naira) for the independence celebration is also a sign of change. As we await the release of the ministerial list, 4 months after being sworn into office, we can only hope for the best. Slowly but surely, we’ll get there.
 
 A new era is here, 55 isn’t too late to start the rebuilding process of our dear country. I hope that by the time we re-unite here to celebrate our 56th anniversary, some of the challenges identified, would have been tackled.  
 
@@ -39,4 +39,5 @@ Nigeria will be great.
 
 
 **A NEW ERA**: as a way of celebrating our independence anniversary this year, yours truly decided to unveil the new look of the diary. So many new things here: the about page, the cover images, the comment section and a host of other cool features. all you have to do is keep clicking and sharing with others. Do share your views with me on Nigeria at 55 in the comment section, i would love to discuss with you. Also, tell me what you think about the blog makeover :).
+
 PS: This article can be shared on Twitter also, by clicking on the tiny little Twitter Icon just below this line.
