@@ -42,4 +42,4 @@ Nigeria will be great.
 
 **A NEW ERA**: as a way of celebrating our independence anniversary this year, yours truly decided to unveil the new look of the diary. So many new things here: the about page, the cover images, the comment section and a host of other cool features. all you have to do is keep clicking and sharing with others. Do share your views with me on Nigeria at 55 in the comment section, i would love to discuss with you. Also, tell me what you think about the blog makeover :).
 
-PS: This article can be shared on Twitter also, by clicking on the tiny little Twitter Icon just below this line.
+PS: This article can be shared on Facebook and Twitter , by clicking on the tiny little Facebook and Twitter Icons just below this line.
