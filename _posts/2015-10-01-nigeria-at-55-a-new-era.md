@@ -4,7 +4,7 @@ title: 'NIGERIA AT 55: A NEW ERA'
 date: '2015-10-01'
 author: Young Black Woman
 tags: Independence_day
-image: /assets/article_images/niigeria.jpg
+image: /assets/article_images/
 ---
 
 Dear Diary,
@@ -19,7 +19,7 @@ The 2015 general elections took place this year. That election would go down in 
 
 October 1 is not a day for us to adorn green attires and carry paper flags like football supporters. It ought to be a day for sober reflection. Even if other countries will lie to us and continue to congratulate us every year, let us be true to ourselves. Forget the fancy adverts in the papers that rise out of nowhere every October 1, where really are we heading to in this country? If you want to solve a problem, you must first identify the cause.  In celebrating our 55 years of independence, let’s look at some of the challenges we still face as a nation.
 
-![Home](/assets/article_images/nigeriaat53.jpg)
+![Home](/assets/article_images/niigeria.jpg)
 
 Every year, youths are churned out of the university and thrown into the labor market. It’s like a free for all, graduating people with no jobs in view. The *ginger* you have on your convocation and passing out parade slowly dies as you wake up to another day under the scorching sun with your file in hand. It takes courage and drive to go through that routine every day until you receive that all important job offer. Those who painstakingly train their wards through school, are hoping that they would reap the fruit of their labor in due time. Seeing that unemployment continues to thrive in our society, when will that *due time* come?
 
