@@ -4,7 +4,7 @@ title: 'NIGERIA AT 55: A NEW ERA'
 date: '2015-10-01'
 author: Young Black Woman
 tags: Independence_day
-image: /assets/article_images/
+image: /assets/article_images/Nigeria-army1.jpg
 ---
 
 Dear Diary,
