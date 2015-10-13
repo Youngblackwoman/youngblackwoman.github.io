@@ -3,15 +3,14 @@ layout: post
 title: 'G is for Giving'
 date: '2015-10-12'
 author: Young Black Woman
-<<<<<<< HEAD
 tags: How well do you know your alphabets
-image: assets/article_images/2014-11-30-mediator_features/night-track.JPG
+image: /assets/article_images/2014-11-30-mediator_features/night-track.JPG
 ---
 
 Dear diary,
 
 *“Giiiiiive, and it shall be given unto you,
-good measure shaken together
+good measure shaken together,
 and running over (2x)”*
 
 If you didn’t sing that song in Sunday school, then I think it’s time you go back for some lessons. Those words were drummed into my ears as a child and I grew up, well aware of what I ought to do. Something happened in church yesterday; I dressed up all ready for church, hit the road and even got to church quite early. I was happy in church that day and it showed in my dancing. I was grinning from ear to ear and was all smiles for anyone who cared to greet me. Time for thanksgiving came and as usual, I danced my way to the altar, only to find out that I left my purse at home. Safe to say I walked back soberly to my seat. After the benediction, I hurriedly went back to the car because I didn’t feel up for the usual *meet 'n' greet*. As I settled down in the car, this kid from nowhere taps the window saying *“aunty, food.”*. He held his tummy with his left hand and touched his mouth with his right, as if to lay emphasis on the message he was trying to pass across. It wasn’t my first time of being in such a situation but despite the fact that I left my purse at home, I still felt the strong urge to give him something. I started looking for what was not lost; I ransacked the car until I found some change and I gave it to him. The smile on his face was priceless. That smile melted my heart and gave me peace within.
