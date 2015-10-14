@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 'G is for Giving'
+title: G is for Giving
 date: '2015-10-12'
 author: Young Black Woman
 tags: uncategorised
@@ -21,7 +21,7 @@ The art of Giving is something that is learnt and not just acquired overnight. T
 
 **Those who give with restraints**; These group of people are givers but not until they have a reason to. Most times, they have a number of excuses for not giving such as *"I don't have change, I don't want people to see me give, what if I turn to a goat after giving him this money?"* and many other ridiculous reasons that seem reasonable at the time. It's only when these excuses have been reasoned out that they can now give. The thing about these category of people is that most times, they end up not giving because it's only a matter of time before the beggar moves on to another person. Then they blame the beggar, *"I was going to give him, but he went away".*
 
-**Those who don't give at all**; don't be too quick to judge these group of people. They may have in the past, belonged to one of the above groups but one bad experience or the other, has helped them to conclude. You don't even have to tell them anything, just walk up to them and they are already shaking their heads in the negative. For some, its just who they are. They grew up to be like that and they don't see anything wrong with it; Palms so tight fisted, you wonder if they'll ever open up to give. If you ever come across people like that, it may help if you try to talk to them. It doesn't hurt to help them see that there's another way to life other than this *aka-gum* life.                 
+**Those who don't give at all**; don't be too quick to judge these group of people. They may have in the past, belonged to one of the above groups but one bad experience or the other, has helped them to conclude. You don't even have to tell them anything, just walk up to them and they are already shaking their heads in the negative. For some, its just who they are. They grew up to be like that and they don't see anything wrong with it; Palms so tight fisted, you wonder if they'll ever open up to give. If you ever come across people like that, it may help if you try to talk to them. It doesn't hurt to help them see that there's another way to life other than this *aka-gum* life.
 
 Everyday, we come across at least 1 member of each of these groups. It may be in our work place, market or even our homes. Relating with members of the last group may be difficult at first but who knows, your good will may rub off on them. Find out where you belong and make the necessary amends (if any) to your lifestyle. There is this peace that comes with giving and it'll be nice to experience it once in a while.
 
