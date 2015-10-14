@@ -18,7 +18,7 @@ I see a lot of young people like me eat all sorts with no apologies to anyone. I
 
 According to helpguide.org; *people who are emotionally healthy are in control of their emotions and behavior. They're able to handle life's inevitable challenges, build strong relationships, and lead productive fulfilling lives. Mental and emotional health refers to the presence of positive characteristics such as; a sense of contentment, the ability to deal with stress and bounce back from adversity, the flexibility to learn a new thing and adapt to change, slef confidence and high self esteem, amongst others.* What more can i say? look within yourself and be truthful. No one deserves to take charge of your health other than you. Be content with what you have, learn new things and be confident. You are all you've got.
 
-Being healthy cannot be traded for anything in this world. Ask the wealthy ones lying critically ill in the hospital. Being ill does not only affect you, it also affects the people around you especially your family members. Also think about the expenses that'll be made so you can live a quality life. All the money you made from *hustling* during your youthful days would now be used to pay hospitals bills, sad. Our creator took his time to craft unique bodies like ours and i think its only fair that we take care of it. 
+Being healthy cannot be traded for anything in this world. Ask the wealthy ones lying critically ill in the hospital. Being ill does not only affect you, it also affects the people around you especially your family members. Also think about the expenses that'll be made so you can live a quality life. All the money you made from *hustling* during your youthful days would now be used to pay hospitals bills, sad. Our creator took his time to craft unique bodies like ours and i think its only fair that we take care of it.
 
 On a side note; anyone else notice the improvement in physical health in recent times? a lot of people are now seen jogging every Saturday morning in the city. Even more people are registering at the gym or with a fitness instructor. Although we know that most of them are doing it for a totally different reason other than being healthy, you cannot but admire the zeal and effort they put into keeping fit.
 
@@ -26,4 +26,4 @@ Check yourself before you wreck yourself.
 
 We are learning.
 
-What are you
+What are you doing to keep yourself healthy? please share in the comment section.
