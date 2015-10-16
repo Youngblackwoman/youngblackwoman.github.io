@@ -1,3 +1,6 @@
+permalink: "/:year/:month/:title.html"
+
+
 # Build settings
 markdown: kramdown
 highlighter: pygments
