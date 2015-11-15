@@ -8,6 +8,7 @@ image: "/assets/article_images/Tulips.jpg"
 ---
 
 Dear diary,
+
 I resisted the urge to talk about happiness so hard that you'll think I'm just a sadist. It's good to talk about happiness and it's pursuit but like I said at the beginning of this series, we would be looking at core issues that affect our everyday life. You really can't blame me for wanting to talk about health; it's importance in this day and age cannot be over-emphasized.
 
 Registering at the clinic for the first time, some basic parameters must be checked. They include blood pressure, height and the *almighty* weight. Not a few people are quick to ask the nurse *"what do i weigh"*, as soon as they unmount the scale. It's something we all are conscious about, *subconsciously*. According to the World Health Organization, being healthy is not just the absence of a disease or infirmity but a complete state of physical, mental and social well being. Some individuals may appear physically healthy but a state of mental or social disarray wipes the slate clean.
