@@ -7,7 +7,7 @@ tags: How well do you know your alphabets?
 image: "/assets/article_images/Desert.jpg"
 ---
 
-Today we are going to be talking about something that makes us all burst out in laughter while displaying our teeth complement-Jokes.  What exactly is a Joke and why do we need to talk about it? A joke is something said or done to cause laughter. It may be a story or a demonstration but the goal to be achieved is laughter. This topic is on the blog today, all thanks to an argument I witnessed some days ago; a lady was screaming at her girlfriend who innocently played a prank on her. The prank was done to lighten her mood but *baby girl* didn’t take it lightly, *“don’t you ever play that kind of joke on me! I don’t like jokes”.*
+Today, we are going to be talking about something that makes us all burst out in laughter while displaying our teeth complement- Jokes.  What exactly is a Joke and why do we need to talk about it? A joke is something said or done to cause laughter. It may be a story or a demonstration but the goal to be achieved is laughter. This topic is on the blog today, all thanks to an argument I witnessed some days ago; a lady was screaming at her girlfriend who innocently played a prank on her. The prank was done to lighten her mood but *baby girl* didn’t take it lightly, *“don’t you ever play that kind of joke on me! I don’t like jokes”.*
 
 My little experience on earth has shown me 2 kinds of people when it comes to the issue of jokes; those who love jokes and those who don’t. One common thing about both groups of people is that when the joke is on you, it’s no longer funny.  As a well grounded alumnus of both schools of thought, I feel I can say one or two things about the 2 scenarios.
 
