@@ -1,6 +1,7 @@
 
 
 
+
 # Build settings
 markdown: kramdown
 highlighter: pygments
@@ -16,11 +17,11 @@ email: youngblackwoman@gmail.com
 #blog logo
 logo: "/assets/images/my_logo.jpg"
 # blog cover
-cover: "/assets/images/download.jpg"
+cover: "/assets/images/stella-jumping.jpg"
 
 name: 'Young Black Woman'
 author: 'Young Black Woman'
-author_image: "/assets/images/author.jpg"
+author_image: "/assets/images/author-pic.jpg"
 
 paginate:	5
 
