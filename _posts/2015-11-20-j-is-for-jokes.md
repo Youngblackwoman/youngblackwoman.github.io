@@ -3,7 +3,7 @@ layout: post
 title: J is for Jokes
 date: "2015-11-20"
 author: Young Black Woman
-tags: How well do you know your alphabets?
+tags: Alphabetical_series
 image: "/assets/article_images/Desert.jpg"
 ---
 

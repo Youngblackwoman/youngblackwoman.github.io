@@ -3,7 +3,7 @@ layout: post
 title: I is for Impact
 date: "2015-11-15"
 author: Young Black Woman
-tags: How well do you know your alphabets?
+tags: Alphabetical_series
 image: "/assets/article_images/Chrysanthemum.jpg"
 ---
 
@@ -17,6 +17,6 @@ Last week, I visited my cobbler. I say my cobbler because I've been dealing with
 
 No one really knows how much impact they are having on others but with time, its effect is seen. Like the popular saying goes, a life is not important except it has an impact on other lives. You can’t truly say you are successful unless you have made a difference in someone’s life. There a lot of people looking for a manual to this tunnel called life, anything to direct them and your life may be just be the manual that they are reading. How are you going to influence them? Why should people come in contact with you and remain the same? Why should they work with you in the same environment and not be changed for the better? Impacts lives and make a change; let someone say because of you I did this. You don't have to spend the whole day with them, even 5 minutes is a lot. It may be a word, it may be your actions, as long as a message is passed across, do it. I remember talking to someone a few months ago and he had his mouth open for the greater part of the conversation. It was a random convo but he saw some things differently after that. I am not perfect but I’m constantly learning every day that it’s the little deeds that actually count.
 
-If we want to see a change in our society, we need to start impacting each other. It’s our responsibility to create an environment that would be favorable for the proper growth of our children. In the words of Late Chaz-b, *"if each one can reach one and each one can teach one, what a beautiful country, Nigeria would be".* 
+If we want to see a change in our society, we need to start impacting each other. It’s our responsibility to create an environment that would be favorable for the proper growth of our children. In the words of Late Chaz-b, *"if each one can reach one and each one can teach one, what a beautiful country, Nigeria would be".*
 
 We are learning...
