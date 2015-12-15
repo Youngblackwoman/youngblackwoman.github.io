@@ -4,14 +4,16 @@ title: S is for Strength
 date: "2015-12-15"
 author: Young Black Woman
 tags: Alphabetical_series
-image: "/assets/images/superman.jpg"
+image: /assets/images/superman.jpg
+published: true
 ---
+
 
 Dear diary, how are you doing this fine morning? we are getting closer to the end of the year. How are your Christmas plans coming out? Have you started shopping? There's just something beautiful about Christmas and I can't help it. We are looking at the 19th letter of the alphabet today and it stands for Strength.
 
 Strength is the quality or state of being physically strong. It is the ability to resist being moved or broken by a force. When we were much younger, we always looked at those guys with thick, shiny muscles as strong people. While that is enough strength to some people, to me it's not enough. Life can deal some very hard blows to your state of mind and that requires more than physical strength to withstand them.
 
-People often wonder where inner strength comes from but the truth is that it has always been there. You never know how strong you are until being strong is the only option you have. You look back at all you have been through, no one knows your story like you do. Those things you thought that happened just so they could break you, well I have good news for you, they didn't. You are standing tall today stronger than you think, able to be strong for others, because you chose to rise up from it all. Some of us have been there for others, we have bore their pains, we have been strong for others but who will be strong for us? Inasmuch as you are a strong person now, the circle that is called life can be unfair sometimes and we all need someone to hold our hands or better still, just remind us of how strong we are when that time comes.
+People often wonder where inner strength comes from but the truth is that it has always been there. You never know how strong you are until being strong is the only option you have. You look back at all you have been through, no one knows your story like you do. Those things you thought that happened just so they could break you, well I have good news for you, they didn't. You are standing tall today stronger than you think, able to be strong for others, because you chose to rise up from it all. Some of us have been there for others, we have borne their pains, we have been strong for others but who will be strong for us? Inasmuch as you are a strong person now, the circle that is called life can be unfair sometimes and we all need someone to hold our hands or better still, just remind us of how strong we are when that time comes.
 
 *"My help comes from the Lord, who made heaven and earth."* **-Psalm 121:2**
 
