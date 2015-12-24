@@ -42,7 +42,7 @@ Entrepreneurial people are always generating ideas for potential businesses but 
 
 For a new Nigeria, we should look away from graduating and writing a *resume* but more of executive summaries (look for *angel investors* instead of jobs). With a sincere government, we should be among the top 10 economies in the world by 2030, where the government’s major income would be from taxpayers money and not crude oil.
 
-GOD BLESS NIGERIA!!!!!!! AND NIGERIA ALONE :)
+GOD BLESS NIGERIA!!! AND NIGERIA ALONE :)
 
 HAPPY HOLIDAYS.
 
