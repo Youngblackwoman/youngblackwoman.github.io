@@ -1,6 +1,6 @@
 ---
 layout: post
-title: A NEW NIGERIA: The role of the Entrepreneur
+title: "A NEW NIGERIA: The role of the Entrepreneur"
 date: "2015-12-24"
 author: Young Black Woman
 tags: Guest, Politics
