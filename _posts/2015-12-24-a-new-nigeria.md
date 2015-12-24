@@ -9,7 +9,7 @@ image: "/assets/article_images/entrepreneur.jpg"
 
 Dear diary, compliments of the season!!! Today, we have a guest writer on the blog and I'm quite excited about it. I once told you about a *cool, calm and collected* gentleman who played the role of Bro Shola during the [Almost a bride series](http://thediaryofayoungblackwoman.com/2014/11/17/almost-a-bride-behind-scenes_17.html), well he's back again on the blog with an inspiring article this time. It's a mind-blowing article that has a number of ideas that'll help in creating the Nigeria of our dreams. I hope you enjoy reading it just like I did.
 
-********************************************************************************
+*******************
 
 Growing up, we got used to the idea of going through school and getting a white collar job with a good pay to take home. With the increase of unemployment rate in our country to 7.5% in the Q1 of 2015, it looks like we need to fall back on *"creative energy”.* A new Nigeria would not be complete if the youths still believe in that old trend of looking for jobs. Nations like China, United Arab Emirates, Taiwan, and India understand the influence of entrepreneurship in developing a country and have created an enabling environment to foster growth. Back to Nigeria, the Gross Domestic Product(GDP) was recently rebased from about $270billion to $510billion in 2013, which made us the largest economy in Africa but this is not reflecting in our GDP per capital where we rank 122nd in the world. If we assume those numbers are accurate then there is a lot we aren’t doing right because even though the statistics may have changed but the reality remains the same.
 
@@ -46,7 +46,7 @@ For a new Nigeria, we should look away from graduating and writing a *resume* bu
 
 GOD BLESS NIGERIA!!!!!!! AND NIGERIA ALONE :)
 
-HAPPY HOLIDAYS
+HAPPY HOLIDAYS.
 
 **OLUSEGUN ISIOYE**
 
