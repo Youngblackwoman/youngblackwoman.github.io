@@ -7,7 +7,7 @@ tags: Guest, Politics
 image: "/assets/article_images/entrepreneur.jpg"
 ---
 
-Dear diary, compliments of the season!!! Today, we have a guest writer on the blog and I'm quite excited about it. I once told you about a *cool, calm and collected* gentleman who played the role of Bro Shola during the [Almost a bride series](http://thediaryofayoungblackwoman.com/2014/11/17/almost-a-bride-behind-scenes_17.html), well he's back again on the blog with an inspiring article this time. It's a mind-blowing article which has a number of ideas that'll help in creating the Nigeria of our dreams. I hope you enjoy reading it just like I did.
+Dear diary, compliments of the season!!! Today, we have a guest writer on the blog and I'm quite excited about it. I once told you about a *cool, calm and collected* gentleman who played the role of Bro Shola during the [Almost a bride series](http://thediaryofayoungblackwoman.com/2014/11/17/almost-a-bride-behind-scenes_17.html), well he's back again on the blog with an inspiring article this time. It's a mind-blowing article that has a number of ideas that'll help in creating the Nigeria of our dreams. I hope you enjoy reading it just like I did.
 
 ********************************************************************************
 
