@@ -1,6 +1,6 @@
 ---
 layout: post
-title: U is for Unity
+title: "U is for Unity"
 date: "2016-4-13"
 author: Young Black Woman
 tags: Alphabetical_series
