@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "U is for Unity"
-date: "2016-4-13"
+date: "2016-04-13"
 author: Young Black Woman
 tags: Alphabetical_series
 image: "/assets/images/unity.jpg"
