@@ -11,4 +11,4 @@ Dear diary, do you trust me? I've been asked that question so many times that I 
 
 Trust according to Merriam-Webster is defined as the process of believing in someone.
 
-I believe that 
+I believe that
