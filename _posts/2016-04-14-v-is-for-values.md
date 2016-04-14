@@ -16,7 +16,7 @@ It's easy to live a carefree life; one without principles, but the consequences 
 
 If you do not have personal values that guide you, it's not too late. You can start off by understanding who you are as a person and what you hope to achieve in life. Take for instance, if you want to become a Doctor, you know that you have to be diligent, hard working, intelligent, passionate, e.t.c because these values play a significant role in the medical school journey. That's how values are discovered; identify values that are in line with what you want to achieve. Now these values may not be easy to keep up with because of the human nature within us, therefore you have to prioritize according to what works for you. Every other medical student may have these values but what works for Dayo may not work for Tayo (I just felt the need to rhyme with the names). Find the value that you *speaks* to you and follow it, as time goes on, you'll be able to add more to the list. With time you may feel the need to change/upgrade your value system and it is okay to do so. Anything that'll push you a step further towards your goal, is a welcome development anytime.
 
-Do not seek to be like others, identify your values and stand out from the crowd. These values ought not to be compromised so you should strive to stick to them. It'll take a lot of self-discipline on your part to achieve your goal but trust me, it'll be worth it.
+Do not seek to be like others, identify your values and stand out from the crowd. These values ought not to be compromised so you should strive to stick to them. It'll take a lot of self-discipline on your part to achieve your goal but trust me, it'll be worth it in the end.
 
 What are your Values? do share with me :).
 
