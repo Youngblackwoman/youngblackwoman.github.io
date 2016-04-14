@@ -6,7 +6,7 @@ author: Young Black Woman
 tags: Alphabetical_series
 image: "/assets/article_images/dr-chike-values.jpg"
 ---
-Dear diary, how are you doing this fine Thursday morning? Today's post is one that is quite dear to my heart, I hope it speaks to you just like it did to me. Yes, my posts are for me too, aren't we all here to learn? Enjoy as you read :).
+Dear diary, how are you doing this fine Thursday morning? Today's post is one that is quite dear to my heart, I hope it speaks to you just like it did to me. Yes, my posts are for me too, aren't we all here to learn? ()*side eye*). Enjoy as you read :).
 
 Has anyone ever walked up to you and asked "what are your values?" and you were stunned by the question? Well, that was me a few years ago. I actually opened my mouth to answer the question but the words were not forthcoming. I was hearing some things in my head but you know that saying that goes, *"It is better to keep your mouth closed and let people think you are a fool than to open it and remove all doubt",* yeah, I decided to keep quiet. The truth is prior to the question being asked, I had never really thought about my values. Don't get it wrong, those who know me (*hi guys*) know that there's something that guides my perspective of life but I just could not put a name to it. These *things* that guide the way I act and react, I've never really found a reason to name/tag them until I was asked the question.
 
