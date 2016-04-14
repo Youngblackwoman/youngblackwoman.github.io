@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "V is for Values"
-date: "2016-04-13"
+date: "2016-04-14"
 author: Young Black Woman
 tags: Alphabetical_series
 image: "/assets/article_images/dr-chike-values.jpg"
