@@ -19,7 +19,7 @@ Unity is a state or quality of being one or united into a whole. As simple as th
 
 Growing up, my siblings and I watched tales by moonlight every Sunday evening and we always had something to learn. On one of such episodes, the instructor explained the whole concept of unity to us using a broom. We were taken aback by his explanation so we went *broom hunting*. On finding one, I removed a broom stick from it and I was able to break it in the twinkle of an eye. Then my sister tried breaking the broom at once but it was impossible. Instead her palms turned red and she almost hurt herself in the process. We learnt a very valuable lesson that day; alone you can be easily broken but when you are united, you are unbreakable, it's as simple as that.
 
-*We are only as strong as we are united, as we as we are divided.* **- J.K. Rowling**
+*We are only as strong as we are united, as we are divided.* **- J.K. Rowling**
 
 Most times, the human mind tries to play tricks on us; that we can survive alone but the truth is that, no man is an island. Unity helps to strengthen us in our weakest moments. It has a role to play in every aspect of our lives; the family, school, work place and even the country at large. Once there is disunity, quarrels and conflicts ensue. In order to move forward, we have to be united. Take for instance, the work place. If all the employees of a particular company are united in pursuing the goal of the company instead of their own selfish interests, can you imagine the level of success that company would record? Alone, there is only so much that you can do but together, we are indestructable.
 
