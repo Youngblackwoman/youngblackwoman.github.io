@@ -1,7 +1,7 @@
 ---
 layout: post
 title: "Alphabetical Series"
-date: "2016-04-27"
+date: "2016-04-26"
 author: Young Black Woman
 tags: Alphabetical_series
 image: "/assets/PhotoStage/alphabets.jpg"

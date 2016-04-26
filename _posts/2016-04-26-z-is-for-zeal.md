@@ -21,4 +21,4 @@ Some have a blind zeal i.e go in the direction of a different thing other than w
 
 We are learning...
 
-**P.S: Please watch out for the next post which has all the letters of the series in it. You can always go back and read any letter you are not quite sure about**
+**P.S: Please watch out for the next post which has all the letters of the series in it. You can always go back and read any letter you are not quite sure about.**
