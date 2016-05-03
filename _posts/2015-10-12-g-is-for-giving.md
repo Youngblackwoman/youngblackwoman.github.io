@@ -3,7 +3,7 @@ layout: post
 title: G is for Giving
 date: '2015-10-12'
 author: Young Black Woman
-tags: uncategorised
+tags: Alphabetical_series
 image: "/assets/article_images/2014-11-30-mediator_features/night-track.JPG"
 ---
 

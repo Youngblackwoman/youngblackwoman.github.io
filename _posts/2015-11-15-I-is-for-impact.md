@@ -7,7 +7,7 @@ tags: Alphabetical_series
 image: "/assets/article_images/Chrysanthemum.jpg"
 ---
 
-Distinguished ladies et gentlemen of the diary, how are you doing this fine Monday morning? have you learnt from our Alphabetical series so far? It's all in a quest to create a better society for us all. We are moving on to the value of the 9th alphabet today, I is for Impact.
+Distinguished ladies et gentlemen of the diary, how are you doing this fine Monday morning? have you learnt anything from our Alphabetical series so far? It's all in a quest to create a better society for us all. We are moving on to the value of the 9th alphabet today, I is for Impact.
 
 Living in a society like ours, our survival instincts as humans drives us into different spheres of our lives. We interact with different people every day in our work place, schools, hospitals, the market place and even in traffic. There's almost a 95% chance that you'll meet a new person every single day. When you meet these people, do they go away remaining the same? What new thing did you, directly or indirectly, add to their life?
 

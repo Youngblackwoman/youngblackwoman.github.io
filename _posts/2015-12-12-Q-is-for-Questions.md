@@ -15,29 +15,29 @@ Who are you? (Describe yourself in 5 words)
 
 What kind of [attitude](http://thediaryofayoungblackwoman.com/2015/06/08/a-is-for-attitude.html) do you have?
 
-Do you think you are [beautiful](http://thediaryofayoungblackwoman.com/2015/06/10-b-is-for-beauty.html)?
+Do you think you are [beautiful](http://thediaryofayoungblackwoman.com/2015/06/10/b-is-for-beauty.html)?
 
-Are you responsive to [change](http://thediaryofayoungblackwoman.com/2015/06/28-c-is-for-change.html)?
+Are you responsive to [change](http://thediaryofayoungblackwoman.com/2015/06/28/c-is-for-change.html)?
 
-Are you a [disciplined](http://thediaryofayoungblackwoman.com/2015/07/13-d-is-for-discipline.html) person?
+Are you a [disciplined](http://thediaryofayoungblackwoman.com/2015/07/13/d-is-for-discipline.html) person?
 
-What new thing have you [explored](http://thediaryofayoungblackwoman.com/2015/07/13-d-is-for-discipline.html) recently?
+What new thing have you [explored](http://thediaryofayoungblackwoman.com/2015/09/12/e-is-for-explore.html) recently?
 
-Do you find it easy to [give](http://thediaryofayoungblackwoman.com/2015/10/12-g-is-for-giving.md)?
+Do you find it easy to [give](http://thediaryofayoungblackwoman.com/2015/10/12/g-is-for-giving.html)?
 
 Are you happy with your life so far?
 
-Do you think you have a [healthy](http://thediaryofayoungblackwoman.com/2015/10/15-h-is-for-health.md) lifestyle?
+Do you think you have a [healthy](http://thediaryofayoungblackwoman.com/2015/10/15/h-is-for-health.html) lifestyle?
 
-What [impact](http://thediaryofayoungblackwoman.com/2015/11/15-I-is-for-impact.md) have you made in your environment recently?
+What [impact](http://thediaryofayoungblackwoman.com/2015/11/15/I-is-for-impact.html) have you made in your environment recently?
 
-Do you have a sense of [humour](http://thediaryofayoungblackwoman.com/2015/11/20-j-is-for-jokes.md)?
+Do you have a sense of [humour](http://thediaryofayoungblackwoman.com/2015/11/20/j-is-for-jokes.html)?
 
-What was the name of the [last book you read](http://thediaryofayoungblackwoman.com/2015/11/23-k-is-for-knowledge.md)?
+What was the name of the [last book you read](http://thediaryofayoungblackwoman.com/2015/11/23/k-is-for-knowledge.html)?
 
-Do you believe in [love](http://thediaryofayoungblackwoman.com/2015/11/25-L-is-for-love.md)?
+Do you believe in [love](http://thediaryofayoungblackwoman.com/2015/11/25/L-is-for-love.html)?
 
-Why do you think you were [placed on earth](http://thediaryofayoungblackwoman.com/2015/12/11-P-is-for-puropse.md)?
+Why do you think you were [placed on earth](http://thediaryofayoungblackwoman.com/2015/12/11/P-is-for-puropse.html)?
 
 Do you think you are trust worthy?
 
