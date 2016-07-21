@@ -33,7 +33,9 @@ She wears her hair anyhow she pleases, the natural hair nazis have nothing on he
 
 But Ene is married, she's married to a fine military man.
 
+
 ![Eneis married!!!](/assets/images/ring.jpg)
+
 
 **Ene is married**
 
