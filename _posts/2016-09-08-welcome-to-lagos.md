@@ -18,6 +18,7 @@ I think the government has tried to an extent by putting traffic lights and ward
 Beyond the traffic situation that is Lagos, a lot of things happen in traffic; many have met their life partners there, eaten a full course meal (gala, coke and chips saving people since 1845), furnished their apartment with items bought on the way (from foot mat to ceiling fan) and even built up their music/movie collection with pirated discs bought in traffic. What is it that you are looking for? You are sure to find it in Lagos traffic.
 
 To avoid being stuck in traffic, the following tips should help.
+
 * Check traffic reports: live feeds are available on social media and the radio.
 
 * Leave early: try to avoid rush hour traffic when everyone would be on the road e.g people going to school in the morning or at the close of work.
