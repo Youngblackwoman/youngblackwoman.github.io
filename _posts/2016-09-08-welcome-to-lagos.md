@@ -4,7 +4,7 @@ title: "Lagos na wah: Welcome to Lagos"
 date: "2016-09-08"
 author: Young Black Woman
 tags: Lagos
-image: "/assets/article_images/lagtraffic.jpg"
+image: "/assets/article_images/lasgiditraffic.jpg"
 ---
 
 What’s the first thought that comes to your mind when you hear the name Lagos? You may say good people, happy people, the good life and all those *stories that touch the heart.* For me, the first thing that comes to mind when I hear Lagos, is **Traffic**. If you are the type that is allergic to traffic (yes, there are people like that; they react to traffic by crying and complaining about it 24 hours of the day, 7 days a week) then Lagos is not the place for you.
