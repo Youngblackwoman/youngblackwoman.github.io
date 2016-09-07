@@ -19,9 +19,13 @@ Beyond the traffic situation that is Lagos, a lot of things happen in traffic; m
 
 To avoid being stuck in traffic, the following tips should help.
 * Check traffic reports: live feeds are available on social media and the radio.
+
 * Leave early: try to avoid rush hour traffic when everyone would be on the road e.g people going to school in the morning or at the close of work.
+
 * Make proper plans: Be like yours truly who doesn’t just wake up and decide to go out. I have to make sure the area I’m going to is traffic free.
+
 * Learn alternative routes: you never know when this will come in handy. It’s okay to learn new routes so you can avoid traffic. You may get lost in the process, but you’ll never forget your way again.
+
 * Use the BRT: sometimes, the queue for the BRT may be insane but it’s a sure way to have a stress free ride to work. Leave the car at home sometimes and join the bus.
 
 Recently, there have been reports of robberies in traffic and it’s getting worse by the day. I would love for you to be here next week for another episode of *Lagos na wah!.* So please stay safe out there. I hope you have learnt a few things about Lagos traffic. If there are other things to add, I would love to read them in the comment section. Keep your eyes open next time you are in traffic, I may just bump into you.
