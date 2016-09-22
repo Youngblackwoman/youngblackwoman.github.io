@@ -7,7 +7,7 @@ tags: Lagos
 image: "/assets/article_images/Danfo1.jpg"
 ---
 
-Fellow Lagosians, how are you doing this fine Thursday morning?. It’s another episode of *Lagos na wah!* And I hope you are as excited as I am to read today’s post. Don’t try reading this post alone, it could be dangerous, invite your friends to come read along, it promises to be worth it.
+Fellow Lagosians, how are you doing this fine Thursday morning?. It’s another episode of *Lagos na wah!* And I hope you are as excited as I am to read today’s post. Don’t try reading this post alone, it could be dangerous. Invite your friends to read along with you, it promises to be worth it.
 
 There are so many things that define this beautiful city but only a few stand out. Have you heard about the Lagos *Danfo* before? It is a means by which many go about their daily hustle. It is one that is sure to be filled with drama, no matter how small. How can we talk about Lagos without that which virtually defines it? Almost everyone living in Lagos must have entered this bus at one point in their lives; not necessarily for the experience but maybe there was an emergency or fuel scarcity or just a random reason. Like the proper lagosian that I am, I have learnt a lot on these yellow buses and it’s my duty to share some of my experiences with you.
 
