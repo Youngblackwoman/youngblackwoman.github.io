@@ -4,7 +4,7 @@ title: "Lagos na wah: Yellow Mellow"
 date: "2016-09-22"
 author: Young Black Woman
 tags: Lagos
-image: "/assets/article_images/danfo.jpg"
+image: "/assets/article_images/googledanfo.jpg"
 ---
 
 Fellow Lagosians, how are you doing this fine Thursday morning?. It’s another episode of *Lagos na wah!* And I hope you are as excited as I am to read today’s post. Don’t try reading this post alone, it could be dangerous, invite your friends to come read along, it promises to be worth it.
@@ -35,6 +35,3 @@ With all these stories you have heard about the *Danfo* bus, u may not want to b
 I hope this episode has enlightened you on the beauty that is the *Lagos Danfo*. I have learnt a lot about humans, characters and situations of life by just boarding these buses and I wouldn’t trade those experiences for anything in the world. Have you had any funny experience in a *Danfo* bus before? Please share I would love to hear from you.
 
 *Eko o ni baje, O baje ti!*
-
-
-**Cover image: Okayafrica.com**
